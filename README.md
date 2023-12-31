@@ -4,15 +4,20 @@
     <img src="https://www.idmlover.com/favicon.ico" alt="Logo" width="80" height="80">
   </a>
 
-  <h3 align="center">IDM 6.42 Crack + Patch 2023</h3>
+  <h3 align="center">IDM 6.42 Crack + Patch 2024</h3>
 
   <p align="center">
     Download and Install IDM 6.42 Build 2 Full Version with Crack for 32/64 Bit Windows 11/10/8/7.
     <br/>
     Password= IDMCRACKDL
     <br/>
-    <a href="https://github.com/Neerajyogi/IDM-Latest-Version"><strong>Download IDM Crack 2023 »</strong></a>
+    <a href="https://github.com/Neerajyogi/IDM-Latest-Version"><strong>Download IDM Crack 2024 »</strong></a>
     <br/>
+
+## Acknowledgements
+* [IDMCrackDL.com](https://www.idmcrackdl.com)
+* [WinRARLover](https://www.winrarlover.com)
+* [IDMLover](https://www.idmlover.com/)     
     <br/>
     <a href="https://github.com/Neerajyogi/IDM-Latest-Version">View Demo</a>
     .
@@ -44,7 +49,4 @@ Here's why:
 * FTP, HTTP, HTTPS, MMS and several other protocols supported
 * Queuing downloading of files
 
-## Acknowledgements
-* [IDMCrackDL.com](https://www.idmcrackdl.com)
-* [WinRARLover](https://www.winrarlover.com)
-* [IDMLover](https://www.idmlover.com/)
+
